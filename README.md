@@ -309,4 +309,4 @@ Làm giàu không phải là một cuộc đua nước rút mà là một hành 
 
 **Chúc bạn thành công trên con đường làm giàu! 🚀**
 
-*Cuốn sách này được tạo bởi AI Assistant - Một công cụ hỗ trợ học tập và phát triển cá nhân.* 
+*Cuốn sách này được tạo bởi AI Assistant - Một công cụ hỗ trợ học tập và phát triển cá nhân.*
